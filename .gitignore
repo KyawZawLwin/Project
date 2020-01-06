@@ -23,7 +23,7 @@
 hs_err_pid*
 
 target/
-pom.xml.tag
+pom.xml.tagg
 pom.xml.releaseBackup
 pom.xml.versionsBackup
 pom.xml.next

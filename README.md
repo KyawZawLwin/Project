@@ -7,9 +7,10 @@
 
 
 
- WTS [Fulmin Acricron] 2k [Rubico 
 
-WTB r0 [Arcane Energize] 100 [Arcane Grace]80p   [Arcane Guardian] 15p [Arcane Fury] 7p :platinum: Acceleration Strike Rage Victory] 2p 
+WTB r0 [Arcane Energize] 100 [Arcane Grace]80p [Arcane Guardian] [Arcane Aegis] [Arcane Barrier] 15p [Arcane Fury] 7p :platinum:
+[Ayatan Anasa Sculpture] Filled 6:60p :platinum:
+Acceleration Strike Rage Victory] 2p 
 
 WTB r0 [Arcane Energize] 100    [Arcane Guardian] [Arcane Aegis] [Arcane Barrier] [Arcane Aegis] 15p [Arcane Fury] 7p  :platinum:
 
